@@ -1,4 +1,4 @@
-= Rocket Singh - Salesman of the Year =
+# Rocket Singh - Salesman of the Year
 
 * Opening scene, friends pass from college, so they are partying. One of the Harpreet's best friends was trying to make Harpreet to give KAT exam for Harpreet's own good as he didn't score well. But this pissed off Harpreet and he says "Tu itna negative kyun hai yaar." and one or two abuses. But they both still did not have any bad feelings for the each other and started dancing again.
 * Harpreet lives with his Dada Ji and they have a very friendly bond. Harpreet's language is respectful towards his Dada Ji but they both pull each other's leg now and then.
