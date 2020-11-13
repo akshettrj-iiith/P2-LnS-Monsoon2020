@@ -7,4 +7,4 @@ The first stage of the project requires us to collect data for our project and t
 - Cinema: Nikhil Bishnoi
 - Cinema: Aaryan Singh
 - Advertisements: Tanishq Goel
-- Print media: Veeral
+- Print media: Veeral Agarwal
