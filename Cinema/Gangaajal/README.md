@@ -1,5 +1,8 @@
 # Gangaajal
 
+## By
+Akshett Rai Jindal
+
 ## Story
 The film begins with Senior Superintendent of Police (SSP) IPS Amit Kumar (Ajay Devgn) taking charge of the fictitious Tejpur District (West Champaran) in Bihar. The area is notorious for its crime rate, with Tezpur Police under the control of the local don Sadhu Yadav (Mohan Joshi) and his son Sundar Yadav (Yashpal Sharma). While travelling to the headquarters on the first day of his duty, Amit's car breaks down and he uses this as an opportunity to inspect the area. While touring the area, Amit observes a systemic rot in the administration of the place what with the professional laxity among police officials, crumbling infrastructure, outdated weaponry, lack of basic facilities like stationery and transportation and the dependence of the officials on corrupt local contractors for the same. Amit also finds that most of his subordinates are on the payroll of Sadhu Yadav and exchange favors. Amit tries to instill honesty and courage in his subordinates, but in vain.
 
